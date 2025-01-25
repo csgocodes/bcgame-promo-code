@@ -15,7 +15,7 @@ With its attractive promotional code, bc.game caused a great sensation in the on
 
 ## How to Claim/Use BC.Game promo code?
 
-Signing up and claiming or using bc.game promotional code can be done through the following steps. However, the process might vary with different codes the gamers intend to use:
+Signing up and claiming or using [bc.game promotional code](https://x.com/bcgamepromocode) can be done through the following steps. However, the process might vary with different codes the gamers intend to use:
 
 * Provide the needed personal details and create bc game account.
 * Check offer links.
